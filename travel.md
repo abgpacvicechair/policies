@@ -7,7 +7,7 @@
 
 3. Meal per diem of $45/day (split as $10 for breakfast, $10 for lunch, $25 for dinner), including gratuities and taxes. Meals covered under conference/event fees will not be covered by per diem.
 
-4. Use of private automobile: mileage will be reimbursed at the current Federal Government approved rate (currently $0.54/km, $0.48/km over 5000km). Group will see how this works the first year, and then determine if annual limits should be imposed for individual travel (eg, U of C currently has a limit of $2400 for term of office).
+4. Use of private automobile: mileage will be reimbursed at the current Federal Government approved rate (currently $0.54/km, $0.48/km over 5000km). Group will see how this works the first year, and then determine if annual limits should be imposed for individual travel.
 
 5. Airfare (although unlikely to be necessary, but should be included just in case) will be economy fare, with change/cancellation fees, baggage fees, and seat selection fees covered.
 
